@@ -1,2 +1,0 @@
-# Sanaski.github.io
-hewo
